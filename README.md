@@ -2,6 +2,20 @@
 
 自由上网，翻墙上网，科学上网，机场推荐
 
+2020在用
+2021报价
+①【忍者】【48/a】【50/m】【不限】【x2】【签到】【港台美日新/X不可自定义列表】【2n@Android_Clash】【13n@Windows_Clash】【https://renzhe.cloud/ 】
+        【77/a】【100/m】【2d】
+       
+②【STC】【76/a】【250/m】【3d】【x1】【签到】【港澳日韩美新+英德俄印澳/√自定义】【24节点】【http://stc-clubs.casa/ 】
+       【150/a】【240/m】【6d】
+       
+③【SSTZ】【144/a】【50/m】【？d】【x？】【签到】【港日美新/X】【6n】【https://www.sstz.info/ 】
+
+④【CoCoCloud】【125/a】【100/m】【Un】【x1】【签到】【英法美港台日韩新/X】【20n】【https://dashboard.coco355.com/ 】
+              【25/s】 【50/m】
+              
+⑤【FastLink】【152/a】【100/m】【Un】【x0.1~x3】【签到】【全球/X】【50+n】【https://fastlink.ws/ 】
 
 1）高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
 
